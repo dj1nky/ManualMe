@@ -2,7 +2,7 @@
 
 
 ## About me
-I was born with a profound hearing impairement, and at age three, began wearing a Cochlear device on my left ear. My journey in speech development began later than most, and I underwent intensive speech therapy during my schooling years. I do not use sign language, but am currently in the process of learning it, so I am better able to communicate with the hearing impaired community. I have also developed some unique skills over the years to help me hear better, such as lip reading. (If you have seen Seinfeld, yes, I do get 'sweeping' and 'sleeping' confused like Marlee Matlin, and whilst my lip reading is not flawless, it is pretty decent, especially for people I communicate with regularly!) [Youtube Link](https://www.youtube.com/watch?v=zgPQwMT0Ivk&ab_channel=DJSeanE%F0%9F%87%BA%F0%9F%87%B8)
+I was born with a profound hearing impairement, and at age three, began wearing a Cochlear device on my left ear. My journey in speech development began later than most, and I underwent intensive speech therapy during my schooling years. I do not use sign language, but am currently in the process of learning it, so I am better able to communicate with the hearing impaired community. I have also developed some unique skills over the years to help me hear better, such as lip reading. (If you have seen Seinfeld, yes, I do get 'sweeping' and 'sleeping' confused like Marlee Matlin [Youtube Link](https://www.youtube.com/watch?v=zgPQwMT0Ivk&ab_channel=DJSeanE%F0%9F%87%BA%F0%9F%87%B8)) and whilst my lip reading is not flawless, it is pretty decent, especially for people I communicate with regularly!
 
 ## The best ways to communicate with me
 If you are communicating with me through video calls, I would really appreciate if you please:
